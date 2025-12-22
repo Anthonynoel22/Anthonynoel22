@@ -1,4 +1,4 @@
-![COVER](https://www.google.com/url?sa=t&source=web&rct=j&url=https%3A%2F%2Fwww.ynov.com%2Fmetiers%2Fdeveloppeur-informatique&ved=0CBUQjRxqFwoTCLi7kt_00JEDFQAAAAAdAAAAABAH&opi=89978449)
+![COVER](https://static.vitrine.ynov.com/var/site/storage/images/7/5/3/1/21357-1-fre-FR/da8d716ebcd3-developpeur-informatique-ynov.jpeg)
 
 # Salut, moi c'est Anthony 👋
 
